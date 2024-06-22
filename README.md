@@ -19,6 +19,8 @@ I believe technology brings us together and is a tool for improving the standard
 
 When I'm not coding I like to sing🎤, play the piano🎹,cajon and harmonica and I play sports like squash, chess, badminton and carrom.🎼🏸♟️🎯
 
+Here's my Youtube channel where I post my music audios: https://youtube.com/@shivanayy?si=YFcLwEzU-1JAvupS
+
 I also like solving ciphers and jigsaw puzzles.🕵🏻‍♀️🧩 
 
 I keep myself fit by exercising regularly,yoga and swimming.🏋️‍♀️🧘‍♀️🏊‍♀️
